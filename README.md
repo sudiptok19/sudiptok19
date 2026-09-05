@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I m a undergrad Btech student !! <br>< Shaping ideas to a reality >
+<br>< Shaping ideas to a reality >
 
 
 ## 🌐 Socials:
