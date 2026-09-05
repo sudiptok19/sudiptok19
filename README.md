@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>< Shaping ideas to a reality >
+<br>< Shaping ideas to reality >
 
 
 ## 🌐 Socials:
